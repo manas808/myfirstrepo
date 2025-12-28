@@ -94,16 +94,7 @@ okokokokokokko
 
 
 
-tgis is future officer in js ok offlile work to work like hell 
 
-this is tyhe help of office to work like hell first 
-
-
-
-
-ok this file is created by my file .com in side our program 
-
-this is creativity ok 
 
 
 
